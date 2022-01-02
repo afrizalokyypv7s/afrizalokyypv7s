@@ -1,4 +1,4 @@
-### Hi there 👋
+### The things you own, end up oweing you. 👋
 
 <!--
 **afrizalokyypv7s/afrizalokyypv7s** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
